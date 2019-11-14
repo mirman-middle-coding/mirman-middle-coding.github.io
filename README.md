@@ -1,1 +1,1 @@
-# [your username].github.io
+# [mirman-middle-school].github.io
